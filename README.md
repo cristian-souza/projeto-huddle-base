@@ -47,7 +47,7 @@ Foi um projeto bem desafiador, onde tive que relembrar de diversos elementos de 
 
 ## 📞 Entre em contato comigo
 
-Através do email: 📧 cristianmms@hotmail.com
+Através do email: 📧 cristiansouza_dev@outlook.com
 
 Pelo linkedin: 🔗 www.linkedin.com/in/cristian-mm-souza
 
